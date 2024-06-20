@@ -1,1 +1,5 @@
-"C:\Users\Hp\Videos\Captures\t_ask 1.py - .vscode - Visual Studio Code 2024-06-19 19-33-21.mp4"
+
+
+
+https://github.com/rocky-2904/tyui/assets/173170607/94ec09db-3bb7-4353-bbf4-e1d10ab4efdd
+
